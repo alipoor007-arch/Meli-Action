@@ -1,5 +1,8 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-05-14 00:24 (IR Time)
+- 🗜️ [illustration-drawing-style-set-wildlife.zip](https://github.com/alipoor007-arch/Meli-Action/raw/main/dl/illustration-drawing-style-set-wildlife.zip) `7.10 MB`
+
 ### 📅 2026-05-11 04:19 (IR Time)
 - 📥 [_LoveHerFeet_ Hazel Moore _The Unexpected Trio - 01.03.zip.001](https://github.com/alipoor007-arch/Meli-Action/raw/main/dl/_LoveHerFeet_%20Hazel%20Moore%20_The%20Unexpected%20Trio%20-%2001.03.zip.001) `90.00 MB`
 - 📥 [_LoveHerFeet_ Hazel Moore _The Unexpected Trio - 01.03.zip.002](https://github.com/alipoor007-arch/Meli-Action/raw/main/dl/_LoveHerFeet_%20Hazel%20Moore%20_The%20Unexpected%20Trio%20-%2001.03.zip.002) `90.00 MB`
