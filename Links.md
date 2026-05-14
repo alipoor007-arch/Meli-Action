@@ -1,5 +1,8 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-05-14 06:07 (IR Time)
+- 🎬 [Gdaal _ Madgal - _Khooneye Akhar_ OFFICIAL VIDEO _ جیدال و مدگل - خونه ی آخر.mp4](https://github.com/alipoor007-arch/Meli-Action/raw/main/dl/Gdaal%20_%20Madgal%20-%20_Khooneye%20Akhar_%20OFFICIAL%20VIDEO%20_%20%D8%AC%DB%8C%D8%AF%D8%A7%D9%84%20%D9%88%20%D9%85%D8%AF%DA%AF%D9%84%20-%20%D8%AE%D9%88%D9%86%D9%87%20%DB%8C%20%D8%A2%D8%AE%D8%B1.mp4) `17.47 MB`
+
 ### 📅 2026-05-14 00:24 (IR Time)
 - 🗜️ [illustration-drawing-style-set-wildlife.zip](https://github.com/alipoor007-arch/Meli-Action/raw/main/dl/illustration-drawing-style-set-wildlife.zip) `7.10 MB`
 
